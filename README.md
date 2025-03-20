@@ -34,6 +34,7 @@ NOTE:  These models below aren't for commissions, Only for my own GFX Art or In-
 NOTE2:  I have seen some of you hiring me, I am not for hiring! (Reason: I don't have that much free time)
 
 [SCROLL DOWN IF YOU WANT TO START THE COMMISSION WITH ME]
+[MAKE SURE TO VISIT MY PASTWORKS BEFORE START DOING COMMISSIONS WITH ME!]
 
 [Status:]
 🔴 : Perm-Closed/ Temp-Closed
