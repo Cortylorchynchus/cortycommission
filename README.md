@@ -33,6 +33,8 @@ A Roblox 3D Modeler for Commissions
 NOTE:  These models below aren't for commissions, Only for my own GFX Art or In-Game used!
 NOTE2:  I have seen some of you hiring me, I am not for hiring! (Reason: I don't have that much free time)
 
+[SCROLL DOWN IF YOU WANT TO START THE COMMISSION WITH ME]
+
 [Status:]
 🔴 : Perm-Closed/ Temp-Closed
 🟡 : Doing Other's Commission / Busy
@@ -43,3 +45,7 @@ GFX (NEW): 100 - 500 Robux ( or to ∞ )  (🔴)
 Average Time for Each model: 1 - 4 Days ( Or Longer ) or 7 - 30 Days ( Due to school)
 Average Model Prices: 125 - 1000 Robux ( or to ∞ ) (🟡)
 
+⚫[How do i start a Commission with you? and How do i claim my Commission work?]
+⚪To Start the Commission, You have to add me in Discord First.
+⚪Discord Name: .corty
+⚪And to claim your Commission, You have to pay me first then I will give you the Commission!
