@@ -29,22 +29,26 @@ A Roblox 3D Modeler for Commissions
 ⚪-I only want Robux as a Payment.
 ⚪(This might be updated in the future.)
 
+[My Pastworks]
+![alt text](https://github.com/Cortylorchynchus/cortycommission/blob/main/PastWorksFromMyCommissions.png?raw=true)
+![alt text](https://github.com/Cortylorchynchus/cortycommission/blob/main/PastWorksNotFromMyCommissions.png?raw=true)
+
 [ONLY FOR COMMISSIONS!]
 NOTE:  These models below aren't for commissions, Only for my own GFX Art or In-Game used!
 NOTE2:  I have seen some of you hiring me, I am not for hiring! (Reason: I don't have that much free time)
 
 [SCROLL DOWN IF YOU WANT TO START THE COMMISSION WITH ME]
-[MAKE SURE TO VISIT MY PASTWORKS BEFORE START DOING COMMISSIONS WITH ME!]
 
 [Status:]
 🔴 : Perm-Closed/ Temp-Closed
 🟡 : Doing Other's Commission / Busy
 🟢 : Can do Commissions
 
-Rendering (NEW): 50 - 100 Robux ( or to ∞ )  (🔴)
-GFX (NEW): 100 - 500 Robux ( or to ∞ )  (🔴)
+[Prices:]
+Rendering (NEW): 50 - 225 Robux ( or to ∞ )  (🔴)
+GFX (NEW): 150 - 750 Robux ( or to ∞ )  (🔴)
 Average Time for Each model: 1 - 4 Days ( Or Longer ) or 7 - 30 Days ( Due to school)
-Average Model Prices: 125 - 1000 Robux ( or to ∞ ) (🟡)
+Average Model Prices: 175 - 2500 Robux ( or to ∞ ) (🟡)
 
 ⚫[How do i start a Commission with you? and How do i claim my Commission work?]
 ⚪To Start the Commission, You have to add me in Discord First.
