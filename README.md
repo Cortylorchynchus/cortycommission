@@ -49,6 +49,8 @@ Rendering (NEW): 50 - 225 Robux ( or to ∞ )  (🔴)
 GFX (NEW): 150 - 750 Robux ( or to ∞ )  (🔴)
 Average Time for Each model: 1 - 4 Days ( Or Longer ) or 7 - 30 Days ( Due to school)
 Average Model Prices: 175 - 2500 Robux ( or to ∞ ) (🟡)
+Total Fund : 3,741 Robux (Thanks!)
+Goal : 25,000 Robux
 
 ⚫[How do i start a Commission with you? and How do i claim my Commission work?]
 ⚪To Start the Commission, You have to add me in Discord First.
