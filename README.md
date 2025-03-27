@@ -49,7 +49,7 @@ NOTE 2: I have seen some of you trying to hire me—I am not for hiring! (Reason
 Rendering (NEW): 50 - 225 Robux (or more) (🔴)
 GFX (NEW): 150 - 750 Robux (or more) (🔴)
 Average time for each model: 1 - 4 days (or longer), or 7 - 30 days (due to school).
-Average model prices: 175 - 2,500 Robux (or more) (🟡)
+Average model prices: 175 - 2,500 Robux (or more) (🟢)
 Total fund: 3,741 Robux (Thanks!)
 Goal: 25,000 Robux
 
